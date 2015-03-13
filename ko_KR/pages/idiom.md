@@ -18,5 +18,5 @@ ex) 거절을 고졸한다! 고-졸-한-다! 등등
 3. 쌩일 = 쌩얼 + 날, 쌩얼인 날
 
 ## 니팔자야
-1. 노라조의 신곡 [M/V(Youtube)](https://youtu.be/S_rhqFEpURg)
+1. 노라조의 신곡 [](https://youtu.be/S_rhqFEpURg)
 2. 아이디어를 말한 사람이 책임자가 된다는 뜻
